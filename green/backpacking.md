@@ -12,7 +12,7 @@
   c. Considerations of wind and storm direction that can affect your choice of a campsite.
   d. Determine if it is necessary to camp by a water source or if it is more a matter of convenience. List the possible dangers you should consider.
 6. List the possible dangerous plants, insects, snakes, and other animals you may encounter while hiking. Explain what you should do if these dangers are encountered. In the field, identify one of these dangers.
-7. Explain the danger of dehydration.
+7. Explain the danger of dehydration and heat over exposure.
 8. Explain two ways to purify water and why purification is necessary.
 9. Explain the difference between at least two major types of packs used in backpacking. Explain the advantages and disadvantages of each. Explain why you chose the pack you did. Would you choose a different pack if you could afford it? If so, what kind and why?
 10. Properly load your backpack for an overnight backpacking trip. Load your own gear and your share of the patrol equipment and food. Point out where heavy items should go and identify the items placed on top or placed for easy access while on the trail.
